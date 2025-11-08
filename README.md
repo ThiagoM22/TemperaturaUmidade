@@ -67,7 +67,7 @@ https://wokwi.com/projects/439815593103801345
 Desenvolvido por Mazzi
 📧[thiago.mazzi2017@gmail.com]
 
-🔗[github.com/ThiagoM22]
+🔗[ThiagoMZZ](https://github.com/ThiagoM22)
 
 
 
